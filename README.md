@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @itsdragonn
+- 👀 I’m interested in video games!
+- 🌱 I’m currently learning Java
+- 💞️ I’m looking to collaborate on video game projects!
+- 📫 My discord is .itsdragon.
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I make music and can make you video soundtracks for free!
