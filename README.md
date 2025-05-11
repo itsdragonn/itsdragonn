@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @itsdragonn
+- 👋 Hi, I’m itsdragon
 - 👀 I’m interested in video games!
 - 🌱 I’m currently learning Java
 - 💞️ I’m looking to collaborate on video game projects!
