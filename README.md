@@ -1,6 +1,6 @@
 - 👋 Hi, I’m itsdragon
 - 👀 I’m interested in video games!
-- 🌱 I’m currently learning Java
+- 🌱 I’m currently learning music
 - 💞️ I’m looking to collaborate on video game projects!
 - 📫 My discord is .itsdragon.
 - 😄 Pronouns: He/Him
